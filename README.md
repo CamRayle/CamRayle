@@ -1,1 +1,1 @@
-![](what-steve-harrington.gif)
+![](giphy.gif)
